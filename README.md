@@ -91,7 +91,8 @@ might take a minute to load in LOL</mark></summary>
 ![all eyes on rafa](https://64.media.tumblr.com/2d8ff5940b35228243c2d9afa4600480/d25940931c67f948-12/s250x400/5aaad568b7ef31cc67539ecf3492bab5191d2699.gifv)
 ![palestine flag](https://64.media.tumblr.com/728f379c7e764eb6433f15cbf75df492/d25940931c67f948-5f/s250x400/96e26a3225ff23a7753a0134fd64500007e00859.gifv)
 ![palestine dont ign](https://64.media.tumblr.com/4a09bc90fdc7d0513d3416ab93472325/d25940931c67f948-13/s250x400/5a0fdeaa99995664c4a5b23c9b9eb9925cf5f26e.gifv)
-![divider](https://64.media.tumblr.com/9c2ab966e38c71421ccf5eedec6f59f3/30f0d8e8a63a6e35-d6/s640x960/1c1e253ff58a9d96ccdba873d6fe72bedd4f7711.gifv)
+![div](https://64.media.tumblr.com/97bae525b65744f19a445549918ab846/2006be11919028f2-cc/s540x810/fdcd55ebb67766408a66a6ddfad24bd6a0ec7cc1.gifv)
+
 
 Before going into all the stuff, check out the stamps I've made!!
 
@@ -236,7 +237,7 @@ Before going into all the stuff, check out the stamps I've made!!
 
 Free to use!
 
-![divider](https://64.media.tumblr.com/9c2ab966e38c71421ccf5eedec6f59f3/30f0d8e8a63a6e35-d6/s640x960/1c1e253ff58a9d96ccdba873d6fe72bedd4f7711.gifv)
+![div](https://64.media.tumblr.com/97bae525b65744f19a445549918ab846/2006be11919028f2-cc/s540x810/fdcd55ebb67766408a66a6ddfad24bd6a0ec7cc1.gifv)
 
 Now here are all the stamps I didn't make
 
@@ -422,7 +423,7 @@ Now here are all the stamps I didn't make
 ![appl](https://64.media.tumblr.com/143e2f3153a563a6f873a51837d3c86d/a8690e23767b02e5-52/s75x75_c1/3c52252142b61c3b5ba94cee24106faef9cc5458.gifv)
 ![mars](https://64.media.tumblr.com/2ca2e7cabe76c810bfe32cf5f20f09d7/0e670483a7d370a3-2f/s100x200/6e10c3b4b0e00ea42ace1577eaecdc17f0bf33c3.gifv)
 
-![divider](https://64.media.tumblr.com/9c2ab966e38c71421ccf5eedec6f59f3/30f0d8e8a63a6e35-d6/s640x960/1c1e253ff58a9d96ccdba873d6fe72bedd4f7711.gifv)
+![div](https://64.media.tumblr.com/97bae525b65744f19a445549918ab846/2006be11919028f2-cc/s540x810/fdcd55ebb67766408a66a6ddfad24bd6a0ec7cc1.gifv)
 <!--- ORANGE STAMPS --->
 
   <!-- EDIT SCALE DOWN "goldfish" TO 50PX-->
@@ -568,7 +569,7 @@ Now here are all the stamps I didn't make
 ![saturn](https://64.media.tumblr.com/389786f1e1b36d847487a54dde81ae4b/0e670483a7d370a3-66/s400x600/5b3192eb224620f85d93c0ba1e5e55922013aa40.gifv)
 ![jupiter 2](https://64.media.tumblr.com/15fb4b02392711ca7e629197c898bf8a/0e670483a7d370a3-cc/s75x75_c1/b80e47012426ce5886373ceec35e36f2ce2191b0.gifv)
 
-![divider](https://64.media.tumblr.com/9c2ab966e38c71421ccf5eedec6f59f3/30f0d8e8a63a6e35-d6/s640x960/1c1e253ff58a9d96ccdba873d6fe72bedd4f7711.gifv)
+![div](https://64.media.tumblr.com/97bae525b65744f19a445549918ab846/2006be11919028f2-cc/s540x810/fdcd55ebb67766408a66a6ddfad24bd6a0ec7cc1.gifv)
 
 ![sharp edges](https://adriansblinkiecollection.neocities.org/stamps/h4.gif)
 ![epic win](https://adriansblinkiecollection.neocities.org/stamps/h5.gif)
@@ -717,8 +718,9 @@ Now here are all the stamps I didn't make
 ![fish](https://64.media.tumblr.com/a698e94d9ac47139c9c19238ebd4838d/4a155fc44f02bed1-6b/s100x200/e4cafab932a75778f6119fcbdc9402b5373f220c.gifv)
 ![house](https://64.media.tumblr.com/958003c2e5e40b1c996b62a9467eb602/4a155fc44f02bed1-7c/s100x200/fdc5587cbf02a337a7f3f5c1e4bff0da487e7eb3.pnj)
 
-![divider](https://64.media.tumblr.com/9c2ab966e38c71421ccf5eedec6f59f3/30f0d8e8a63a6e35-d6/s640x960/1c1e253ff58a9d96ccdba873d6fe72bedd4f7711.gifv)
+![div](https://64.media.tumblr.com/97bae525b65744f19a445549918ab846/2006be11919028f2-cc/s540x810/fdcd55ebb67766408a66a6ddfad24bd6a0ec7cc1.gifv)
 
+<!---green stamps--->
 ![binary solos](https://64.media.tumblr.com/eaa17faa1187625c27d77c573481f1b7/a200edbed2b101ab-5f/s100x200/0ee73590d7d7638568ef785de8b109f1b1ec3149.gifv)
 ![spinning stamp](https://64.media.tumblr.com/4b922901b05e068e9a0a61edd5a3653b/422b753e34e8578a-2d/s100x200/f8e42e99b7a139cbdb30f1d81fd3ae4865c04ff5.gifv)
 ![idk how to label](https://64.media.tumblr.com/4cfc3e285cae88b85b59aff96e736902/9d275445a053ac06-ef/s100x200/cb8d6bbdc3282eef943c4607b7fcd33726e780dc.pnj)
