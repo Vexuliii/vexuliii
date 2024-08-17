@@ -37,3 +37,16 @@
   <a href="https://open.spotify.com/user/316s7hpkfi4vrcgqg5hlpetzztba?si=pUsty4ftSkSQLw1qma4n_A"><img src="https://64.media.tumblr.com/38c08a717daa5be13e45f5cfef702f60/7e12cc3c384d74d1-42/s250x400/28b5afa08eacaf26e521fdeaa8893656c56cc17f.pnj" alt="Spotify" height=60px>
 
 ![div](https://64.media.tumblr.com/97bae525b65744f19a445549918ab846/2006be11919028f2-cc/s540x810/fdcd55ebb67766408a66a6ddfad24bd6a0ec7cc1.gifv)
+
+<div align="center">
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&weight=300&size=21&duration=3500&pause=700&color=f62217&center=true&vCenter=true&width=435&lines=10%2F17%2F97+%3A;The+Earth+is+hungry.;Its+heart+throbs%2C;and+demands+cleansing;The+Earth+is+also+thirsty..." alt="Typing SVG" /></a>
+
+  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&weight=300&size=21&duration=7500&pause=700&color=f62217&center=true&vCenter=true&repeat=false&width=435&lines=-Postal+Dude%2C+1997" alt="Typing SVG" /></a>
+</div>
+
+ <img src="https://64.media.tumblr.com/97bae525b65744f19a445549918ab846/2006be11919028f2-cc/s540x810/fdcd55ebb67766408a66a6ddfad24bd6a0ec7cc1.gifv" height=20px>
+
+
+
+
+ 
