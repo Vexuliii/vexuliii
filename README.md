@@ -1,4 +1,8 @@
+<div align="center">
+ 
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=12&pause=1000&color=F62217&center=true&repeat=false&width=435&lines=Last+updated%3A+08%2F17%2F24" alt="Typing SVG" /></a>
 
+</div>
 
 <div align="center">
  <img src="https://runningwithscissors.com/wp-content/uploads/2019/06/logo_p1.png" alt="I LOVE POSTAL RAAGGH" height=120px>
@@ -45,6 +49,7 @@
 </div>
 
  <img src="https://64.media.tumblr.com/97bae525b65744f19a445549918ab846/2006be11919028f2-cc/s540x810/fdcd55ebb67766408a66a6ddfad24bd6a0ec7cc1.gifv" height=20px>
+
 
 
 
