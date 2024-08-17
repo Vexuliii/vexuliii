@@ -39,6 +39,7 @@
   <a href="https://vexulii.atabook.org/"><img src="https://64.media.tumblr.com/6d397cf45032816ee95eebc272c28a38/7e12cc3c384d74d1-6f/s250x400/7a7b67e51547f74a0889b017e4e55bfe5aad4d36.pnj" alt="Atabook" height=60px title="Atabook/Guestbook">
   <a href="https://www.last.fm/user/Vexulii"><img src="https://64.media.tumblr.com/8f566624fc3ace20d45903d487d4b300/7e12cc3c384d74d1-dd/s250x400/328ba0de35793ca3322d920c83ac83a4bab5ae9b.pnj" alt="Last.FM" height=60px title="Last.FM">
     <a href="https://vexuliii.carrd.co/"><img src="https://64.media.tumblr.com/dcfefc2fe0ebcacb3117567d9635115a/7e12cc3c384d74d1-90/s250x400/9c086d3c52f50f0d80ebbd84d45bd778cc8af7c2.pnj" alt="Carrd" height=60px title="Carrd">
+      <a href="https://vexuliii.straw.page"><img src="https://64.media.tumblr.com/6ecaae1464f6b0e06c37a3724a2ecec4/6138bd87ce054daa-96/s250x400/93768974e3ac4aea092228138b38d4a01e02562e.pnj" alt="Carrd" height=60px title="Strawpage">
   <a href="https://open.spotify.com/user/316s7hpkfi4vrcgqg5hlpetzztba?si=pUsty4ftSkSQLw1qma4n_A"><img src="https://64.media.tumblr.com/38c08a717daa5be13e45f5cfef702f60/7e12cc3c384d74d1-42/s250x400/28b5afa08eacaf26e521fdeaa8893656c56cc17f.pnj" alt="Spotify" height=60px title="Spotify">
    
 
