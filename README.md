@@ -748,6 +748,8 @@ Now here are all the stamps I didn't make
 Wow! you made it to the end!!! good job :3 COUGHS 
 if you wanna see all my stamps bc im taking my sweet time uploading them all onto here,,,,, they're all on [my patreon!!!](https://www.patreon.com/Vexuliii) (shameless plugin)
 
+</div>
 
+![div](https://64.media.tumblr.com/97bae525b65744f19a445549918ab846/2006be11919028f2-cc/s540x810/fdcd55ebb67766408a66a6ddfad24bd6a0ec7cc1.gifv)
 
 
