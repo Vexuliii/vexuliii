@@ -744,7 +744,6 @@ Now here are all the stamps I didn't make
 
 
 
-
 Wow! you made it to the end!!! good job :3 COUGHS 
 if you wanna see all my stamps bc im taking my sweet time uploading them all onto here,,,,, they're all on [my patreon!!!](https://www.patreon.com/Vexuliii) (shameless plugin)
 
@@ -752,4 +751,16 @@ if you wanna see all my stamps bc im taking my sweet time uploading them all ont
 
 ![div](https://64.media.tumblr.com/97bae525b65744f19a445549918ab846/2006be11919028f2-cc/s540x810/fdcd55ebb67766408a66a6ddfad24bd6a0ec7cc1.gifv)
 
+<div align="center">
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=14&pause=1000&color=F62217&center=true&multiline=true&repeat=false&width=435&lines=This+Github(And+everything+I+use+rn...);is+inspired+by+the+POSTAL+GAME+SERIES!" alt="Typing SVG" /></a>
 
+  <a href="https://vexuliii.straw.page"><img src="https://runningwithscissors.com/wp-content/uploads/2023/09/Running-With-Scissors-logo-menu.png" alt="RWS" height=60px title="Running With Scissors website!!">
+
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=14&pause=1000&color=F62217&center=true&width=435&lines=Welcome+to+Paradise%E2%80%A6+Arizona.;They%E2%80%99re+out+to+get+you.;Or+are+they%3F;It+doesn%E2%80%99t+matter.+You+don%E2%80%99t+have+time+to+think%2C;only+time+to+kill." alt="Typing SVG" /></a>
+
+
+
+
+
+
+  
