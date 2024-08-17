@@ -19,7 +19,10 @@
 <div align="center">
   
 ![divider2](https://64.media.tumblr.com/8d1be62103b29a75e46a167efbf0c7fd/d639484ccb2c509f-5c/s640x960/bb87c01de3fca0c0da1ba7a91ffa7c76881d7c8b.pnj)
-</div>
+
+
+![div](https://64.media.tumblr.com/97bae525b65744f19a445549918ab846/2006be11919028f2-cc/s540x810/fdcd55ebb67766408a66a6ddfad24bd6a0ec7cc1.gifv)
+
 
 <div align="center">
  <img src="https://64.media.tumblr.com/0b45311715b0c12005fd548cdf18bd31/64db995e247551df-b4/s1280x1920/c827c070b29b9a812558528de0149c84aa90421b.pnj" alt="RWS Vexulii sign" height=125px>
@@ -33,4 +36,4 @@
     <a href="https://vexuliii.carrd.co/"><img src="https://64.media.tumblr.com/dcfefc2fe0ebcacb3117567d9635115a/7e12cc3c384d74d1-90/s250x400/9c086d3c52f50f0d80ebbd84d45bd778cc8af7c2.pnj" alt="Carrd" height=60px>
   <a href="https://open.spotify.com/user/316s7hpkfi4vrcgqg5hlpetzztba?si=pUsty4ftSkSQLw1qma4n_A"><img src="https://64.media.tumblr.com/38c08a717daa5be13e45f5cfef702f60/7e12cc3c384d74d1-42/s250x400/28b5afa08eacaf26e521fdeaa8893656c56cc17f.pnj" alt="Spotify" height=60px>
 
-
+![div](https://64.media.tumblr.com/97bae525b65744f19a445549918ab846/2006be11919028f2-cc/s540x810/fdcd55ebb67766408a66a6ddfad24bd6a0ec7cc1.gifv)
