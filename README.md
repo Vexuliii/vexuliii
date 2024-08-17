@@ -19,8 +19,18 @@
    <a href="https://costsystem.straw.page/"><img src="https://64.media.tumblr.com/fa6f4ef0bcfe0ac497df12e65279ed91/10c87c72b8c0d328-ca/s400x600/443d63bfb53e6f272ae3b481f8c22bcae3235a65.pnj" alt="sys info" height=40px title="Click for system information!">
      <a href="https://arab.org/click-to-help/palestine/"><img src="https://64.media.tumblr.com/23bfcbd4dd3ff647328fef0080395ecd/10c87c72b8c0d328-be/s400x600/6717c7c535269cd5f988969f2c82d267d47eeb63.pnj" alt="palestine click" height=40px title="Click for daily palestine click!">
 </div>
+
+<div align="center">
+  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F72A00&repeat=false&center=true&width=435&lines=NOW+PLAYING%3A" alt="Typing SVG" /></a>
+</div>
+
+<div align="center">
+<a href="https://www.last.fm/user/Vexulii"><img src="https://lastfm-recently-played.vercel.app/api?user=Vexulii&footer_style=compact_stats&count=1&width=500&loved=true&header_style=none&bg_color=aa2222" alt=""></a>
+
+
        
 <div align="center">
+
   
 ![divider2](https://64.media.tumblr.com/8d1be62103b29a75e46a167efbf0c7fd/d639484ccb2c509f-5c/s640x960/bb87c01de3fca0c0da1ba7a91ffa7c76881d7c8b.pnj)
 
