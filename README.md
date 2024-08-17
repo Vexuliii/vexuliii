@@ -754,7 +754,7 @@ if you wanna see all my stamps bc im taking my sweet time uploading them all ont
 <div align="center">
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=14&pause=1000&color=F62217&center=true&multiline=true&repeat=false&width=435&lines=This+Github(And+everything+I+use+rn...);is+inspired+by+the+POSTAL+GAME+SERIES!" alt="Typing SVG" /></a>
 
-  <a href="https://vexuliii.straw.page"><img src="https://runningwithscissors.com/wp-content/uploads/2023/09/Running-With-Scissors-logo-menu.png" alt="RWS" height=60px title="Running With Scissors website!!">
+  <a href="https://runningwithscissors.com/games/"><img src="https://runningwithscissors.com/wp-content/uploads/2023/09/Running-With-Scissors-logo-menu.png" alt="RWS" height=60px title="Running With Scissors website!!">
 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=14&pause=1000&color=F62217&center=true&width=435&lines=Welcome+to+Paradise%E2%80%A6+Arizona.;They%E2%80%99re+out+to+get+you.;Or+are+they%3F;It+doesn%E2%80%99t+matter.+You+don%E2%80%99t+have+time+to+think%2C;only+time+to+kill." alt="Typing SVG" /></a>
 
