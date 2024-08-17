@@ -59,7 +59,7 @@
 </div>
 
  <a href="https://vexuliiii.carrd.co/"><img src="https://64.media.tumblr.com/5f1e7f2d7ae114e57fa12e201895af5d/1dcc3920fd2b1bc2-46/s400x600/055f122ddc3c829f4a15ba443dc239a80bd5717e.pnj" alt="int" height=40px>
-  <a href="hhttps://vexuliiii.carrd.co/#section01"><img src="https://64.media.tumblr.com/41d1c3e0baaa20bbf451ba3c568df504/1dcc3920fd2b1bc2-ad/s400x600/0c1761975d3d020fb86c3c372ded84e1b50c3586.pnj" alt="dni" height=40px>
+  <a href="https://vexuliiii.carrd.co/#section01"><img src="https://64.media.tumblr.com/41d1c3e0baaa20bbf451ba3c568df504/1dcc3920fd2b1bc2-ad/s400x600/0c1761975d3d020fb86c3c372ded84e1b50c3586.pnj" alt="dni" height=40px>
 
 
 
