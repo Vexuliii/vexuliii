@@ -760,8 +760,7 @@ if you wanna see all my stamps bc im taking my sweet time uploading them all ont
 
 
 
-
-
+<a href="https://vexulii.straw.page/potal"><img src="https://64.media.tumblr.com/68245f1b1f5e698be3c97a33f0895761/8fef101933003003-66/s250x400/fdb2e62dfae441f47b66c8b467c2c0e621187165.pnj" alt="Typing SVG" /></a>
 
 
 
