@@ -1,6 +1,6 @@
 <div align="center">
 
-[Hi, Static!! If you see this make me a postal skin](https://www.youtube.com/watch?v=ja0R8HL38FA)
+[Hi, Static!! If you see this make me a postal skin](https://youtu.be/JfOoGqc5MzY?si=LR7R31yHllgcSaPC)
  
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=12&pause=1000&color=F62217&center=true&repeat=false&width=435&lines=Last+updated%3A+08%2F19%2F24" alt="Typing SVG" /></a>
 
