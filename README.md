@@ -811,10 +811,32 @@ Now here are all the stamps I didn't make
 ![brba logo](https://64.media.tumblr.com/37cfb398480eeb8eb2823de1c1ad589d/2f4c749d798c5bf4-21/s250x400/dff954bb799e0538c0bef8ecb426fec52370290b.gifv)
 ![walter white sold me drugs](https://64.media.tumblr.com/9aaae778af44fc541bf5f4be6efc1aa6/2f4c749d798c5bf4-63/s250x400/9041a9874e15f345717393270bb0ef1905b52a27.gifv)
 ![walter white sold me drugs2](https://64.media.tumblr.com/87b29e1ab5b2091143be5e43089cb809/2f4c749d798c5bf4-8c/s250x400/02536e3764d88031307e084754b06624934f3e23.gifv)
-
-
-
-
+![weezer](https://64.media.tumblr.com/5ce0f581f8e9312f5c4094f8e905c2fa/df303fd8b2314751-c7/s250x400/54c7e12b1013c82817a7a3f7ec41855be32cb00a.gifv)
+![steve irwin](https://64.media.tumblr.com/94bfc34239b9e89d0f8189cdb8c22611/3a226d2db9469fbb-98/s250x400/fbe4267f580a0c7952a6b74522f2ab0105cb8403.gifv)
+![and?](https://64.media.tumblr.com/e9c0c22ad637007e1bc6fbf05f50a6d1/3a226d2db9469fbb-33/s250x400/dd7a875250a24bbe1f44b30a92512e74ba4638ce.gifv)
+![i <3 green](https://64.media.tumblr.com/b9a82b84b5f8bf30071f91ac0b401d54/3a226d2db9469fbb-8c/s250x400/2f38261645cdbf61ffdb6f7e1664d6d093e05072.gifv)
+![never sold a rubix cube](https://64.media.tumblr.com/e07fbe0d2ab272557c906b34f43a1087/3a226d2db9469fbb-39/s250x400/b1df4e47639006ae3c16addca41112a7f6e19b8a.gifv)
+![type o neg](https://64.media.tumblr.com/e86232c8f070e05491e89893ed5d874e/11e1093888fbe828-ac/s400x600/3b9f0f240e8605f5ddb495c484db954667dd5ce3.gifv)
+![hows it goin tech geeks](https://64.media.tumblr.com/e15854073a07e4348831adcca40628db/c4a7a5ecdea47622-6e/s250x400/c2ff71aa1579b27b596eda51e98318894df2b0d5.gifv)
+![funny computer guy](https://64.media.tumblr.com/62b602f4f4759ee0d8a91490d86764fa/c4a7a5ecdea47622-6c/s250x400/35e25497a7a9b3c5012645f9ebcc03ed9979038b.gifv)
+![html tags](https://64.media.tumblr.com/23be72ed1374672a66ad882e96b2cb68/c4a7a5ecdea47622-1e/s250x400/8b3e955adc4d24dea1e61714e79df34fa3063b6a.gifv)
+![online and fine](https://64.media.tumblr.com/32bdd3cf18f51714e6cfb9c0a1ef7a3d/c4a7a5ecdea47622-c9/s250x400/4615c8d86a0810d4b3e09ab6615acf358f30527b.gifv)
+![fake download button](https://64.media.tumblr.com/4cf2b7a016173e990ec15e800930c819/c4a7a5ecdea47622-69/s250x400/9ab61fd8874beac598208a5123b13179dc2af90c.gifv)
+![irl computer glitch](https://64.media.tumblr.com/f88b271a5cb99f3a0e4b9bc3a237355f/c4a7a5ecdea47622-54/s250x400/4b83763f3642c8eb7ab85ade6e9849407e39ace4.gifv)
+![truth is out there](https://64.media.tumblr.com/aacf92421ecc803d21763bedae674566/87df79b7daf97334-9e/s250x400/198f334f8514598bd7a23cb27445dd62a081879f.webp)
+![frogs have it easy](https://64.media.tumblr.com/a787627eebc8c6e7fa7597d8bf81730f/87df79b7daf97334-43/s250x400/8ed0f3cddf518fb80ba4bd123b0a39f8d8df0968.webp)
+![boner](https://64.media.tumblr.com/65c352598abf162f47216ba0cdba8cc3/ca451f5f70edbd1c-bf/s250x400/72c5bbf87cb01bcc8f41c8b99810eb4df06abde0.gifv)
+![green checkered](https://64.media.tumblr.com/3f2f151b6f0f4963dfcde56ed5d1c7da/1fb39223b20e4f22-ba/s250x400/c6ff5a4dedec0554780f74ee6c39e615848844a6.jpg)
+![abductee](https://64.media.tumblr.com/311eab80e4fc75334da626ec43580645/1fb39223b20e4f22-3c/s250x400/516599a00ca25e9a7b2b504fb2a7686b3d57c6cf.gifv)
+![green screen](https://64.media.tumblr.com/0c39b8b1f8a365f1113bf0828e18d113/1fb39223b20e4f22-62/s250x400/5e39709d7e2168d60de5ed71eda24ee82120db51.gifv)
+![blink therefore i am](https://64.media.tumblr.com/262393c3eea5f0b9dcf7cd8f4772b9e8/1fb39223b20e4f22-fa/s250x400/d00b49fcc4449771ba8c2b8b5f3dddd34f2c465f.gifv)
+![love making graphics](https://64.media.tumblr.com/e3e919c3f6c3e3d6acdb518053e25066/1fb39223b20e4f22-e6/s250x400/01bfca7426f5a53206710f95c80413882dde0b0b.gifv)
+![reanimator](https://64.media.tumblr.com/e8cbacf6af646aae12222f1e5697b8d3/1fb39223b20e4f22-fe/s250x400/c94df3e40d98c6a4ad02dc9c2be08e7669cc6412.gifv)
+![command ->](https://64.media.tumblr.com/6e68045d5a2af89729ed6f9b70c63625/1fb39223b20e4f22-16/s250x400/871474cae38be597613ae243c1a0825fb231e60e.gifv)
+![buggin](https://64.media.tumblr.com/e6bf331599cc7d43bf5f9c9598d04f61/1fb39223b20e4f22-25/s250x400/5ee7d361e2ab9ecbd6abaf1becdce4fb54c8b38b.gifv)
+![programmer](https://64.media.tumblr.com/2ef804456cb2fcd871571f24f9656af3/1fb39223b20e4f22-d2/s250x400/91ea47ae5ff4c0109a700970fc2c935f59f4b292.gifv)
+![live in another dimension](https://64.media.tumblr.com/804f36bb47414fc553274a594f8f6adf/1fb39223b20e4f22-84/s250x400/7aa31736284d0c17230ce507e2b8b7e973f941e4.gifv)
+![you cant win me](https://64.media.tumblr.com/c263529e50ad3e685c592f1e35391763/49346506959eba51-7b/s250x400/5c6557d992f2070f296577d84130d0e9e6f928cc.gifv)
 
 
 
