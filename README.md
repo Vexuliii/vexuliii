@@ -767,6 +767,63 @@ Now here are all the stamps I didn't make
 ![luigi rave](https://64.media.tumblr.com/d10f51f63595746d94a24fd46ce37184/36bd4bbc8cd9631f-7e/s100x200/a29cebb5c5a6fce6d6a4bc09316eda11dcb152ce.gifv)
 ![life love luigi](https://64.media.tumblr.com/229d317c95cfa8881fde2576687feb25/36bd4bbc8cd9631f-c0/s100x200/5860642e026899dc6834009d8a2310d540365a76.jpg)
   <img src="https://64.media.tumblr.com/4886825db15b8f129d258de032b9ebde/6d78bc7631b17625-f2/s250x400/18a02c2cd7cc484ff494840e158ed033095f9e6b.pnj" alt="cat" height=60px>
+<!---GREEN BLINKIES START--->
+
+![no subliminal msgs](https://64.media.tumblr.com/a9689a897addbe547c0179fbb5f5bf2e/e02d794f1bc4b8a0-31/s250x400/eebc2d691c57bd4ef1c1c3b1f2fd47591d3090f9.gifv)
+![thai food](https://64.media.tumblr.com/c710149f810c8c7c3e3a0fc602eae7ae/3a892baec4c21219-af/s250x400/02654c0684453644aab871c10cc10cd9f1cb5423.pnj)
+![refuse to grow up](https://64.media.tumblr.com/5ca29a217650a8cb78e1376fb4832b7a/0849fa6899c3a334-af/s250x400/6c9a5484309825817e556de10ecc219e8e867d9a.gifv)
+![mint lover](https://64.media.tumblr.com/3830032a2e18db6cd7309a25693499df/53b28a880a29cd42-7b/s250x400/ad60a868d3a7cb34c3fed128fe35e5b28b45acfc.gifv)
+![lizard wizzard](https://64.media.tumblr.com/fe5035936cb45ab2d19da82f232a40e2/53b28a880a29cd42-3b/s250x400/029f760048f2dcd78e9c81b28d997bfd6480ab02.gifv)
+![snake lover](https://64.media.tumblr.com/48452e917137d367373f9fe0cae7a612/225e0849bfd9d987-b1/s250x400/b239e0626bb7d31d7e48faa8b8cb86dfdbc8fb92.gifv)
+![science](https://64.media.tumblr.com/d53eb89cad326c5a1a3ad62babf815de/225e0849bfd9d987-a7/s250x400/803475220c4cd7c2f423165da7fe5cfe0addc48c.gifv)
+![green cat eyes](https://64.media.tumblr.com/ad5438907319cc610cfd3b824e37fa36/3959f7961f40af9c-8b/s250x400/8dd14de8d55ea3c0dc00a6c2eb080232bf955b32.gifv)
+![catepillar](https://64.media.tumblr.com/fbdc8361f63f4fae61053022ad352904/3959f7961f40af9c-3a/s250x400/e0e096c1c34436091f7f82a0617a97afc78b24da.gifv)
+![green squiggly](https://64.media.tumblr.com/3893d6054fad86e8f68eb390c80e1159/e1dd9ee6069f3893-34/s100x200/660bb46448e25aaafc317b5f7de445b5bfdec4f0.gifv)
+![hope you dont mind](https://64.media.tumblr.com/8b6babec7bdb8b122f312c2c4a32a8d7/49f2343760566e61-a3/s250x400/1b0113e5d925dd4f2b11180821d60c2db2accd72.gifv)
+![lily of the valley](https://64.media.tumblr.com/e0069c6f0499de433b3fdc5f9bca5fc9/49f2343760566e61-ca/s250x400/277675908334a7951671db3e70ea4e636d4614ad.gifv)
+![protect the forrest](https://64.media.tumblr.com/8bb2abf80e64ab5d91326f2e3c689923/b682940060128cc5-5f/s400x600/c33a6fca6e0776eb536f863a6a84163bc1317138.gifv)
+![reduce reuse recycle](https://64.media.tumblr.com/345cc29bd38f5c8af91635fd3d38111d/b682940060128cc5-87/s400x600/9547f3bdb8f6ae7d31e009c9547c2a7d897a65fa.gifv)
+![i break for book stores](https://64.media.tumblr.com/571626b81cd1d7ac9dbe84bbc2f492ce/b08ff72694d6ce59-f0/s250x400/b09361ecac8e89e2500cc021a0cbb160bcb50893.gifv)
+![classics reader](https://64.media.tumblr.com/81372782eea3c9c6a8887b1d5fb26f90/b08ff72694d6ce59-d3/s250x400/59d1ac6c8392af774b5a212511ec56189f06da25.gifv)
+![an apple a day](https://64.media.tumblr.com/704f4b04b995a7bcab5843fd10f724e5/d7c0f91f821eccd8-cd/s250x400/4f26864f484d6e20babd00e1ce63735ac07a4543.gifv)
+![carnivorous plant](https://64.media.tumblr.com/e0381520571728b4899d2dbb6fe824ea/d7c0f91f821eccd8-ab/s250x400/26c9fc286bc1a9ea5dba0d7e3c7464b5e06ebc4f.gifv)
+![follow the white rabbit](https://64.media.tumblr.com/e824b66362be37b68cfb79e295a3ca69/d7c0f91f821eccd8-1c/s250x400/7eb1bf91f9d1102c8ec746e540f4678661a95b52.gifv)
+![times a wastin](https://64.media.tumblr.com/764776b5c6f551f1abac5621631a8f1e/d7c0f91f821eccd8-ae/s250x400/0c6681c1c1290e3cae5488c39a66f08b47a71ed6.gifv)
+![visited by kermit](https://64.media.tumblr.com/edde6859cc9572f9a67744bc34247eca/d7c0f91f821eccd8-ab/s250x400/acef2f12d66a6a06d1aea86002e6a06f9e376e36.gifv)
+![kermit the frog](https://64.media.tumblr.com/340cffd11b96bd8a57eb740a1829d2c4/d7c0f91f821eccd8-08/s250x400/fd71a33e2c0006f0ffdd5782eefd6185911ba825.gifv)
+![kermit frog home](https://64.media.tumblr.com/5305cd615dfb90ea6e54b109d2c4831a/d7c0f91f821eccd8-70/s250x400/898733eaf6b667cc5b5285a8b18e2022ff625e26.gifv)
+![boneless](https://64.media.tumblr.com/a989d59f3d1c3116aa2f836695c0a120/d7c0f91f821eccd8-71/s250x400/0c5044502793593dbe8aacbce01bf89fa4391b44.gifv)
+![cant beat em annoy em](https://64.media.tumblr.com/b078c7043ec45e696ae2b1532d9f3c12/d7c0f91f821eccd8-20/s250x400/77976978680f6abc34abcf930a0ddd849b5f20ce.gifv)
+![how does ur garden grow](https://64.media.tumblr.com/4133ca3aa594ebd5d0a1e2a150cb19db/5f6129c6ead3a54f-c8/s250x400/06dd6198c5d14bd2c7d311bf71b1b815791539ea.gifv)
+![matrix](https://64.media.tumblr.com/387d7c91232c7c0fafaf9a62607107a2/3a226d2db9469fbb-07/s250x400/63524a2bb024c957c9f7f5cd1bed6723d585bb81.gifv)
+![strange...](https://64.media.tumblr.com/0c941ad61c197aa4459910a23d1b2e22/3a226d2db9469fbb-15/s250x400/cb5d3fe9e06734484d0841d22e1117cd231b9bbb.gifv)
+![bits n peices](https://64.media.tumblr.com/d717b0d88e4fa075ca18c66046595f0e/3a226d2db9469fbb-2e/s250x400/c49d5eb5cbac6d155fc583fad98ae811dd7c5c42.gifv)
+![i love frogs!](https://64.media.tumblr.com/4f40d5aeff6749f8fed034eaee3f429d/3a226d2db9469fbb-f4/s250x400/e5f672e84fadfb5b56aadbcd516e806938310649.gifv)
+![green bats](https://64.media.tumblr.com/5826087d78aa7a87c6066fc5dc4a7645/ebdfa38e387c0727-05/s250x400/0f142950400417fcc3d0811d461f5defc82ea948.gifv)
+![type o neg](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/35c7efe4-1a24-4f8b-b0d5-0ef529c8f3f2/depp3gm-73207346-7b63-4a56-a77e-7c340767a045.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzM1YzdlZmU0LTFhMjQtNGY4Yi1iMGQ1LTBlZjUyOWM4ZjNmMlwvZGVwcDNnbS03MzIwNzM0Ni03YjYzLTRhNTYtYTc3ZS03YzM0MDc2N2EwNDUuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.iF6Lh39FzvwLtb2R9v9A4iu_8XwNobm0XLdT8RX6Wks)
+![dyslexic swag!](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/dbd06e6e-b313-4acc-80d7-2f76026c8171/dg0o7yi-54c0fbfe-c3c0-4827-8c20-d70c12d13f07.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2RiZDA2ZTZlLWIzMTMtNGFjYy04MGQ3LTJmNzYwMjZjODE3MVwvZGcwbzd5aS01NGMwZmJmZS1jM2MwLTQ4MjctOGMyMC1kNzBjMTJkMTNmMDcuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.Jx69rljssNdHaCuJ1fm-SrmWAnVyBZ9Uz2HqcKUbmkc)
+![green mnm horny](https://64.media.tumblr.com/856686ae5646e756b8d018d5cf78cebd/e02d794f1bc4b8a0-7d/s250x400/81a6b7612c6fe07c5d78f19ebafa200204e2c00f.gifv)
+![abductable](https://64.media.tumblr.com/2222a86305023d46ddc24e5d2b02737e/a5f312680aee2872-b1/s250x400/8494704ce5259c066935e6718581bbc95918ce72.gifv)
+![gay zombie](https://64.media.tumblr.com/1445a7da70f21606327a845c85d9673b/a5f312680aee2872-c4/s250x400/8c3692b81624882f365655e6bac402ddf78dd7aa.gifv)
+![breaking bad addict](https://64.media.tumblr.com/e0003584867fbcfdecabc3a78fb05b22/2f4c749d798c5bf4-d4/s250x400/1788f66b39a414181bda404c2b65718eb3a001c7.gifv)
+![the one who knocks](https://64.media.tumblr.com/e9f34181aa1f6af7b40d4c6efbb4868d/2f4c749d798c5bf4-3a/s250x400/e6699cd06bdb209ba8fdfb46def51c5fec68a58e.gifv)
+![brba](https://64.media.tumblr.com/37af6e24b178fcba2f1c6955354362bf/2f4c749d798c5bf4-77/s250x400/c842437083ad1fb7536a5538d03b01085e23e20a.gifv)
+![brba logo](https://64.media.tumblr.com/37cfb398480eeb8eb2823de1c1ad589d/2f4c749d798c5bf4-21/s250x400/dff954bb799e0538c0bef8ecb426fec52370290b.gifv)
+![walter white sold me drugs](https://64.media.tumblr.com/9aaae778af44fc541bf5f4be6efc1aa6/2f4c749d798c5bf4-63/s250x400/9041a9874e15f345717393270bb0ef1905b52a27.gifv)
+![walter white sold me drugs2](https://64.media.tumblr.com/87b29e1ab5b2091143be5e43089cb809/2f4c749d798c5bf4-8c/s250x400/02536e3764d88031307e084754b06624934f3e23.gifv)
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
