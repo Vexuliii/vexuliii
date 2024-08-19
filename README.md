@@ -837,6 +837,30 @@ Now here are all the stamps I didn't make
 ![programmer](https://64.media.tumblr.com/2ef804456cb2fcd871571f24f9656af3/1fb39223b20e4f22-d2/s250x400/91ea47ae5ff4c0109a700970fc2c935f59f4b292.gifv)
 ![live in another dimension](https://64.media.tumblr.com/804f36bb47414fc553274a594f8f6adf/1fb39223b20e4f22-84/s250x400/7aa31736284d0c17230ce507e2b8b7e973f941e4.gifv)
 ![you cant win me](https://64.media.tumblr.com/c263529e50ad3e685c592f1e35391763/49346506959eba51-7b/s250x400/5c6557d992f2070f296577d84130d0e9e6f928cc.gifv)
+![nookia](https://64.media.tumblr.com/b2090d5571fd3a87ede608ca1514cf83/4a155fc44f02bed1-aa/s100x200/d056f54d2ef136d46a6b7d80f1f952559311d350.pnj)
+![green](https://cyber.dabamos.de/88x31/88x31greenmarble.gif)
+![animation](https://cyber.dabamos.de/88x31/animag_button.gif)
+![any browser](https://cyber.dabamos.de/88x31/anybrowser7.gif)
+![the net](https://cyber.dabamos.de/88x31/ban1.gif)
+![wtf is this](https://cyber.dabamos.de/88x31/bobbles.gif)
+![BR](https://cyber.dabamos.de/88x31/brbutton.gif)
+![blog ranking](https://cyber.dabamos.de/88x31/blogrank.gif)
+![free ware](https://cyber.dabamos.de/88x31/cd_rom.gif)
+![crackit](https://cyber.dabamos.de/88x31/crackit.gif)
+![digital blasphamy](https://cyber.dabamos.de/88x31/dbani.gif)
+![free clipart](https://cyber.dabamos.de/88x31/fclip.gif)
+![webmaster](https://cyber.dabamos.de/88x31/fckingwww.gif)
+![pothead](https://cyber.dabamos.de/88x31/pothead.gif)
+![radium](https://cyber.dabamos.de/88x31/radium.gif)
+![stat counter](https://cyber.dabamos.de/88x31/stat_counter.gif)
+![this website SUCKS](https://cyber.dabamos.de/88x31/sucks.gif)
+![tucows](https://cyber.dabamos.de/88x31/tucows1.gif)
+![underground archive](https://cyber.dabamos.de/88x31/underground.gif)
+![apple](https://64.media.tumblr.com/fd97afbdb4fcc5dce97537e7f9e892a1/a8690e23767b02e5-9d/s75x75_c1/2628335756265a5bb8ec70c0a86beead75de1a2d.gifv)
+![BIG apple](https://64.media.tumblr.com/00a5f881df5b4289563ade4cf195055b/a8690e23767b02e5-62/s100x200/b0ae29947b42aeb7527635e975d4664749c5e852.gifv)
+
+
+
 
 
 
