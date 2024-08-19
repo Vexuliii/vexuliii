@@ -734,13 +734,46 @@ Now here are all the stamps I didn't make
 ![green ppl](https://64.media.tumblr.com/f3cf942335fce123d9e5c83e07b1c03d/6d78bc7631b17625-51/s100x200/835629ac39d8dcb1f90f9938e45724870735de5e.pnj)
 ![wiggly stamp](https://64.media.tumblr.com/13493b13237b507288bbb1c2a32a7265/6d78bc7631b17625-6f/s250x400/756c6fc19a8aa8930173a62a7ca76f0ba6e0941f.gifv)
 ![tea asl](https://64.media.tumblr.com/aa4046ed305b8cacf82a7c706cac6c74/6d78bc7631b17625-cf/s100x200/22926fc48962575fd9c187f46dc742207636ebec.gifv)
-![cat](https://64.media.tumblr.com/4886825db15b8f129d258de032b9ebde/6d78bc7631b17625-f2/s250x400/18a02c2cd7cc484ff494840e158ed033095f9e6b.pnj)
 ![flowers](https://64.media.tumblr.com/50e47032f427d2631395fe0d362f296d/615e38b94fc56b22-7f/s100x200/3d8b4db107912b4820251ed3895bb521f9ce56e0.pnj)
 ![i<3frogs](https://64.media.tumblr.com/bdbdee794e98fccc861cc8959c6e7d57/8c49db604b0f3002-7d/s100x200/ca07cd8331e508d8c231a45fd5d0248c1dead8ed.gifv)
 ![weezer green](https://64.media.tumblr.com/6693d0188fac564622ed42d5e9d541b2/df303fd8b2314751-36/s100x200/562d19c3074c48abbec8ab00d7a80215b54055e8.pnj)
 ![jack staurber](https://64.media.tumblr.com/204406114bc70aa260c366d1238cacdc/533a874e58d22577-d5/s100x200/65aaa4cc37f04cea44b7c4532691099c11aaaa35.pnj)
 ![beatle](https://64.media.tumblr.com/968893f1f7dbe71e2e3edac7e5793e80/c0b49a5b0deb2a31-15/s100x200/1ea4afe3ab9d46910f30a2f440bbdba9cd609537.pnj)
 ![type o neg](https://64.media.tumblr.com/5fc4667b316b0b618e3a00a3b44ab19b/11e1093888fbe828-94/s250x400/9e094f73fb1254287878c2fddfcdd33d4dcc7758.pnj)
+![type o neg2](https://64.media.tumblr.com/9507ff63fa8e83ad7943fd16ef04480b/11e1093888fbe828-cd/s100x200/0ae68886d5092d3820f1c988795920cc446614a2.jpg)
+![type o neg3](https://64.media.tumblr.com/4cd88b9f63cfc8a7fe9332622d8e3e54/11e1093888fbe828-2a/s100x200/778f2b34b1904c83dc632cf95f522b488c5072b8.gifv)
+![type o neg4](https://64.media.tumblr.com/a911aee3ebf5075cbfa04e1bc2b9fa4f/11e1093888fbe828-c8/s100x200/7cc5ec1a130188260838f91fe017dc6ad9548cfe.jpg)
+![type o neg5](https://64.media.tumblr.com/f809ad3f82fc6ec8f2a5213dea6ceb32/11e1093888fbe828-5e/s100x200/5be8d7663a5be5db2b0729651e5aa00c5627fdb6.gifv)
+![hate slow internet connection](https://64.media.tumblr.com/2e99bd79b6c057bcc5348d559bcfc7e3/c4a7a5ecdea47622-a4/s100x200/dd3377cf2c590c73ab5048da76ea8adea45d2a27.gifv)
+![pc user](https://64.media.tumblr.com/dcfb44836a58de06755ef05e532e2e7f/c4a7a5ecdea47622-d3/s100x200/734404c87a85d121216a5fb44963f53da15d7102.gifv)
+![i <3 gasmasks](https://64.media.tumblr.com/b4f858252ad2006dd2effb087d0140bf/430287f45c8133f7-6e/s100x200/ead400b44b6da63cf2acbd9210a8612174a18879.jpg)
+![i am awesome](https://64.media.tumblr.com/e496114841373a8802a4a254b6f70236/430287f45c8133f7-ea/s100x200/d2d921aaa351a258bf7d481b62327f4a4f176f52.gifv)
+![anime gateway caniballism](https://64.media.tumblr.com/d976d43ebaf2b7a06b107548ce491152/430287f45c8133f7-d6/s100x200/f3e4774f6241ad5bebbf93b66811cbf0564e1822.pnj)
+![retro video games](https://64.media.tumblr.com/d484f83e4cd38a418dc48ee4bfb9a16b/430287f45c8133f7-d9/s100x200/571857e80ee96b5fa5f14da643a4f8e048747106.gifv)
+![green lain](https://64.media.tumblr.com/33040e38bb0d60d7ab6e1e664560b2a7/430287f45c8133f7-6d/s100x200/81c110fc05a6cd024a0f005bab35959331c85639.gifv)
+![radioactive](https://64.media.tumblr.com/9f2a3b751727b75efdd3104867342741/430287f45c8133f7-0e/s100x200/406281ca5626d1263b3f4ac22bc3cf0f56d4bcc7.gifv)
+![let me get uhhhh](https://64.media.tumblr.com/692b97d8e3204742445172e9fa4c2393/430287f45c8133f7-b2/s250x400/31bac85f6ae802d34c3987c2559de65e570c34c6.pnj)
+![lab specimen](https://64.media.tumblr.com/da2dd4094e44c354c52d03b3ba8a6ecc/430287f45c8133f7-20/s100x200/5ebb26b002c4ef67e2fc4907a081e001101a12b2.pnj)
+![NO SIGNAL](https://64.media.tumblr.com/0e9c80fca6f65a802833d248b9f7b2c7/430287f45c8133f7-8b/s100x200/5b73aa9bfe9e41685cc2a4d4149d9b4b80daefaa.gifv)
+![i support weird pokemon](https://64.media.tumblr.com/1e35b699d6a20b90c0b7072c60f08101/37bb4c8181d5470c-07/s100x200/57b7744d316db907690bbe06d006660c25df06cc.gifv)
+![music lifeline](https://64.media.tumblr.com/e8440456acb50b507028b6378eeb6187/0a844093c4702aee-c0/s100x200/0cd31e85d122ef0197a3cd59e266b94fb3401725.gifv)
+![not a hacker](https://64.media.tumblr.com/40fd63e521266461a7fe37318076ff4f/e4a0bbfbab0a44fe-69/s100x200/94a38de99744af6b52d0306595f6f79b5e9d0fd9.gifv)
+![html code](https://64.media.tumblr.com/ab2b10773b48899ea58ec5a5eccad6f5/e4a0bbfbab0a44fe-37/s100x200/7fea37e64d70083516f52f63929efcb00082886d.pnj)
+![gorrilaz](https://64.media.tumblr.com/8cf219b7255537fa555408849d0c351c/2d8cb0ed8c20ab45-b6/s100x200/516ac54986da6782293c416c56913a42d8232937.gifv)
+![gorillaz2](https://64.media.tumblr.com/d3b3641c62a8c50a29385ac774f32f80/2d8cb0ed8c20ab45-26/s100x200/6000b60c961d31ff6b31edfddd4993e875528c4d.gifv)
+![i<3gir](https://64.media.tumblr.com/10a54adfeb624f71e9dd79c68b5f7e2e/c80e07d9272333a9-95/s100x200/326b5322231086392fc63dd6430ea5ad34c81c41.gifv)
+![4:20](https://64.media.tumblr.com/9c26de2d3a9191d3261b43d719a1b829/090d4fdcf0be8032-5d/s250x400/6389733615587da4461393c0410651bc4547a275.gifv)
+![glowing stars](https://64.media.tumblr.com/2e506eea8a89e1c8d1a403d7032a24f8/ee11a54a88b1caad-0e/s100x200/a6273aef671bf8f120cbb4bff52c54fa208d5d79.pnj)
+![luigi rave](https://64.media.tumblr.com/d10f51f63595746d94a24fd46ce37184/36bd4bbc8cd9631f-7e/s100x200/a29cebb5c5a6fce6d6a4bc09316eda11dcb152ce.gifv)
+![life love luigi](https://64.media.tumblr.com/229d317c95cfa8881fde2576687feb25/36bd4bbc8cd9631f-c0/s100x200/5860642e026899dc6834009d8a2310d540365a76.jpg)
+  <img src="https://64.media.tumblr.com/4886825db15b8f129d258de032b9ebde/6d78bc7631b17625-f2/s250x400/18a02c2cd7cc484ff494840e158ed033095f9e6b.pnj" alt="cat" height=60px>
+
+
+
+
+
+
+
 
 
 
