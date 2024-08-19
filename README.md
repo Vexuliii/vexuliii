@@ -2,7 +2,7 @@
 
 [Hi, Static!! If you see this make me a postal skin](https://www.youtube.com/watch?v=ja0R8HL38FA)
  
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=12&pause=1000&color=F62217&center=true&repeat=false&width=435&lines=Last+updated%3A+08%2F17%2F24" alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=12&pause=1000&color=F62217&center=true&repeat=false&width=435&lines=Last+updated%3A+08%2F19%2F24" alt="Typing SVG" /></a>
 
 </div>
 
@@ -898,8 +898,9 @@ if you wanna see all my stamps bc im taking my sweet time uploading them all ont
 
 
 
-<a href="https://vexulii.straw.page/potal"><img src="https://64.media.tumblr.com/68245f1b1f5e698be3c97a33f0895761/8fef101933003003-66/s250x400/fdb2e62dfae441f47b66c8b467c2c0e621187165.pnj" alt="Typing SVG" /></a>
+![postal end dialog](https://64.media.tumblr.com/1c38a63756ab0edbddbd8b8116a9e64a/4dcb3d383850df80-3b/s640x960/b34759aeae66cf3d977ca27bbb21dbc319aa346a.pnj)
+
+![div](https://64.media.tumblr.com/97bae525b65744f19a445549918ab846/2006be11919028f2-cc/s540x810/fdcd55ebb67766408a66a6ddfad24bd6a0ec7cc1.gifv)
 
 
-
-  
+  <a href="https://vexulii.straw.page/potal"><img src="https://64.media.tumblr.com/68245f1b1f5e698be3c97a33f0895761/8fef101933003003-66/s250x400/fdb2e62dfae441f47b66c8b467c2c0e621187165.pnj" alt="Typing SVG" /></a>
