@@ -81,6 +81,8 @@
 <mark><b><i>⚠WARNING!</i></b></mark>
   <p align="center">
 <b><i>there are a LOT of bright colors and flashing lights</i></b>
+   
+   also ignore the failed stamps... ik theyre there and ill redo them...
     <p align="center">
 <details>
 <summary><mark>Click to view stamps/blinkies/buttons!
