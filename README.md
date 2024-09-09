@@ -1,8 +1,8 @@
 <div align="center">
 
-[Hi, Static!! If you see this make me a postal skin](https://youtu.be/JfOoGqc5MzY?si=LR7R31yHllgcSaPC)
+[GO FOLLOW MY GFS GIT! <33](https://github.com/lovingly-dazed)
 
- <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=13&pause=1000&color=F62217&center=true&vCenter=true&repeat=false&width=435&lines=Last+updated%3A+08%2F27%2F24" alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=13&pause=1000&color=F62217&center=true&repeat=false&width=435&lines=Last+updated%3A+09%2F09%2F24" alt="Typing SVG" /></a>
 
 </div>
 
