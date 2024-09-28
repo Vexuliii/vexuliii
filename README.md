@@ -2,7 +2,7 @@
 
 [GO FOLLOW MY GFS GIT! <33](https://github.com/lovingly-dazed)
 
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=13&pause=1000&color=F62217&center=true&repeat=false&width=435&lines=Last+updated%3A+09%2F09%2F24" alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=13&pause=1000&color=F62217&center=true&repeat=false&width=435&lines=Last+updated%3A+9%2F28%2F24" alt="Typing SVG" /></a>
 
 </div>
 
@@ -960,4 +960,3 @@ WIP WIP WIP WIP WIP WIP!!!!!
 ![div](https://64.media.tumblr.com/97bae525b65744f19a445549918ab846/2006be11919028f2-cc/s540x810/fdcd55ebb67766408a66a6ddfad24bd6a0ec7cc1.gifv)
 
 
-  <a href="https://vexulii.straw.page/potal"><img src="https://64.media.tumblr.com/68245f1b1f5e698be3c97a33f0895761/8fef101933003003-66/s250x400/fdb2e62dfae441f47b66c8b467c2c0e621187165.pnj" alt="Typing SVG" /></a>
