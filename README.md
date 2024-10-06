@@ -2,7 +2,8 @@
 
 [GO FOLLOW MY GFS GIT! <33](https://github.com/lovingly-dazed)
 
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=13&pause=1000&color=F62217&center=true&repeat=false&width=435&lines=Last+updated%3A+9%2F28%2F24" alt="Typing SVG" /></a>
+
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=13&pause=1000&color=F62217&center=true&vCenter=true&repeat=false&width=435&lines=Last+updated%3A+10%2F6%2F24" alt="Typing SVG" /></a>
 
 </div>
 
@@ -43,6 +44,7 @@
     <a href="https://vexuliii.carrd.co/"><img src="https://64.media.tumblr.com/dcfefc2fe0ebcacb3117567d9635115a/7e12cc3c384d74d1-90/s250x400/9c086d3c52f50f0d80ebbd84d45bd778cc8af7c2.pnj" alt="Carrd" height=60px title="Carrd">
       <a href="https://vexuliii.straw.page"><img src="https://64.media.tumblr.com/6ecaae1464f6b0e06c37a3724a2ecec4/6138bd87ce054daa-96/s250x400/93768974e3ac4aea092228138b38d4a01e02562e.pnj" alt="Carrd" height=60px title="Strawpage">
   <a href="https://open.spotify.com/user/316s7hpkfi4vrcgqg5hlpetzztba?si=pUsty4ftSkSQLw1qma4n_A"><img src="https://64.media.tumblr.com/38c08a717daa5be13e45f5cfef702f60/7e12cc3c384d74d1-42/s250x400/28b5afa08eacaf26e521fdeaa8893656c56cc17f.pnj" alt="Spotify" height=60px title="Spotify">
+    <a href="https://steamcommunity.com/id/Vexulii/"><img src="https://64.media.tumblr.com/49ab1154fd83af49a3991f139ab422fe/d5b04a6370548d54-8a/s250x400/d0fb0fc95817512fa296520387930114f43634ca.pnj" alt="Steam" height=60px title="Steam">
    
 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=12&duration=1&pause=1000&color=F62217&center=true&repeat=false&width=435&lines=Hint%3A+Click+on+the+icons+for+links!" alt="Typing SVG" /></a>
