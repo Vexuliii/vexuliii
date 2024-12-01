@@ -64,8 +64,8 @@
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=12&pause=1000&color=F62217&center=true&repeat=false&width=435&lines=DIRECT+LINKS" alt="Typing SVG" /></a>
 </div>
 
- <a href="https://vexuliiii.carrd.co/"><img src="https://64.media.tumblr.com/5f1e7f2d7ae114e57fa12e201895af5d/1dcc3920fd2b1bc2-46/s400x600/055f122ddc3c829f4a15ba443dc239a80bd5717e.pnj" alt="int" height=40px>
-  <a href="https://vexuliiii.carrd.co/#section01"><img src="https://64.media.tumblr.com/41d1c3e0baaa20bbf451ba3c568df504/1dcc3920fd2b1bc2-ad/s400x600/0c1761975d3d020fb86c3c372ded84e1b50c3586.pnj" alt="dni" height=40px>
+ <a href="https://vexgrqve.ju.mp/"><img src="https://64.media.tumblr.com/5f1e7f2d7ae114e57fa12e201895af5d/1dcc3920fd2b1bc2-46/s400x600/055f122ddc3c829f4a15ba443dc239a80bd5717e.pnj" alt="int" height=40px>
+  <a href="https://vexgrqve.ju.mp/#dni"><img src="https://64.media.tumblr.com/41d1c3e0baaa20bbf451ba3c568df504/1dcc3920fd2b1bc2-ad/s400x600/0c1761975d3d020fb86c3c372ded84e1b50c3586.pnj" alt="dni" height=40px>
 
    <a href="https://www.tumblr.com/analogtoonz/759867837123788800?source=share"><img src="https://64.media.tumblr.com/2d070e0de8a27f65e31897cfe0ecdeb0/730df140842060f5-88/s640x960/9cf6a3638d5636f03788e9590dac504e3454c3a7.pnj" Title="divider creds:analogtoonz" height=40px>
 
