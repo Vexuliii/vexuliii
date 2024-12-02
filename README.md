@@ -1,6 +1,6 @@
 <div align="center">
 
-[GO FOLLOW MY GFS GIT! <33](https://github.com/lovingly-dazed)
+[GO SIGN MY TREE!!!](https://colormytree.me/2024/01JE2M0HTXAYA0H5FMB46EEF1X)
 
 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=13&pause=1000&color=F62217&center=true&vCenter=true&repeat=false&width=435&lines=Last+updated%3A+10%2F6%2F24" alt="Typing SVG" /></a>
