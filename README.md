@@ -916,5 +916,21 @@ WIP WIP WIP WIP WIP WIP!!!!!
 
 </div>
 
+<div align="center">
+  
+![div](https://64.media.tumblr.com/61003687d4581975081854f0f8ead5ab/6e655db92b6f9731-f7/s400x600/acc9999ef7ea538197b42d9fb71e808e6e8cff37.gifv)
 
+  
+ <a href="https://discordapp.com/users/889222031294488608"><img src="https://64.media.tumblr.com/243f8d92b381ba644d968d953b7d9901/096182832d683426-91/s250x400/68adea0f981201b67a1ebe2d833008dfa13c6fec.pnj" alt="Discord" height=50px title="Discord">
+  <a href="https://en.pronouns.page/@vexulii#google_vignette"><img src="https://64.media.tumblr.com/8096e9a4b8c8d72f80a45bcd82f36b92/096182832d683426-47/s250x400/f45b9f344f3beb28ccc60be86378d4d1ca7d0a58.pnj" alt="Pronouns Page" height=50px title="Pronouns Page">
+  <a href="https://vexulii.atabook.org/"><img src="https://64.media.tumblr.com/f631e520d7926d0117b2940273214798/096182832d683426-e2/s250x400/fdb1f6ff1297cdd429f5cb730970e0a3cbb3f4cf.pnj" alt="Atabook" height=50px title="Atabook/Guestbook">
+  <a href="https://www.last.fm/user/Vexulii"><img src="https://64.media.tumblr.com/5d42dd4dbe2434984780e6dcbb9704a0/096182832d683426-e4/s250x400/bb5516e27b5140d334e0aaf13753e1f06fa02b17.pnj" alt="Last.FM" height=50px title="Last.FM">
+    <a href="https://vexgrave.ju.mp/"><img src="https://64.media.tumblr.com/ac2d3ed82b059d9172b6c27c0fd01568/096182832d683426-7a/s250x400/be4e7a7720d2e129ce544d623c134553db978cec.pnj" alt="Carrd" height=50px title="Carrd">
+      <a href="https://vexuliii.straw.page"><img src="https://64.media.tumblr.com/547c6e89ea6c40d4358ab27ad2ee9091/096182832d683426-71/s250x400/c1a172dfb85f92017e4e3587ccc9bd8359a3ecfe.pnj" alt="Strawp" height=50px title="Strawpage">
+  <a href="https://open.spotify.com/user/316s7hpkfi4vrcgqg5hlpetzztba?si=pUsty4ftSkSQLw1qma4n_A"><img src="https://64.media.tumblr.com/d194b90c002fbd86fffddb263c0cba17/096182832d683426-54/s250x400/53ce0f6cf2128e70a0a4b5256e527053259d4ba9.pnj" alt="Spotify" height=50px title="Spotify">
+    <a href="https://steamcommunity.com/id/Vexulii/"><img src="https://64.media.tumblr.com/71b4ec98f0720aa918d6c313c7e9cdf7/096182832d683426-3d/s250x400/163d88efe9c2229fe9301e668fbc7388173725e1.pnj" alt="Steam" height=50px title="Steam">
+
+![div](https://64.media.tumblr.com/61003687d4581975081854f0f8ead5ab/6e655db92b6f9731-f7/s400x600/acc9999ef7ea538197b42d9fb71e808e6e8cff37.gifv)
+
+  </div>
 
