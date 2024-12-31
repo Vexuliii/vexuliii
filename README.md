@@ -28,7 +28,7 @@ $\color{#FFFFF}{\textsf{NOW PLAYING:}}$
 
 <a href="https://www.last.fm/user/Vexulii"><img src="https://lastfm-recently-played.vercel.app/api?user=Vexulii&footer_style=compact_stats&count=1&width=500&loved=true&header_style=none&bg_color=000000" alt="LASTFM" title="Hey, thats some good tunes!"></a>
 
-<a href="https://vexulii.straw.page/music"><img src="https://64.media.tumblr.com/8d6843d22ca2bd03560e7bc260907fd3/4db659f5c77ea919-5d/s400x600/dc98c2ec531f11856522fa1fcd47369edb52f6f9.pnj" alt="Music List" height=30px></a>
+<a href="https://vexulii.straw.page/music"><img src="https://64.media.tumblr.com/8d6843d22ca2bd03560e7bc260907fd3/4db659f5c77ea919-5d/s400x600/dc98c2ec531f11856522fa1fcd47369edb52f6f9.pnj" alt="Music List" height=30px title="Music list (WIP)"></a>
 
 ${\color{#FFFFFF}\verb|(WIP!)|}$
 
